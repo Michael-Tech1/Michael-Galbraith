@@ -1,4 +1,4 @@
-# Michael-Galbraith
+# Michael Galbraith
 
 🌟 Welcome to my GitHub profile! 🌟
 
